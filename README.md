@@ -1,0 +1,2 @@
+# Paradox-Portrait
+Visible Contradictions
